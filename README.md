@@ -1,2 +1,0 @@
-# ProyectoAAA
-AAA AA A
